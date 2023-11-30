@@ -1,2 +1,0 @@
-# Shravya-Rani-Portfolio
-portfolio
